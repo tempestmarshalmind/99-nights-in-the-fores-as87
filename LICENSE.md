@@ -1,4 +1,4 @@
-#  
+#  Professional brainrot evolution script is the best brainrot evolution script with auto-sell and auto-upgrade. Safe, reliable, and optimized for maximum performance.
 
 
 
